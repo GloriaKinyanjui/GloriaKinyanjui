@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GloriaKinyanjui
-- 👀 I’m interested in Digital Marketing
+- 👀 I’m interested and experienced in Digital Marketing
 - 🌱 I’m currently learning UX Design
 - 💞️ I’m looking to collaborate on digital marketing projects
 - 📫 How to reach me: kinyanjuigloria@gmail.com
