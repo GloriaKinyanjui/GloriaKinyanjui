@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @GloriaKinyanjui
-- 👀 I’m interested and experienced in Digital Marketing
-- 🌱 I’m currently learning UX Design
-- 💞️ I’m looking to collaborate on digital marketing projects
+- 👀 I’m interested and experienced in Digital Marketing, UX design
+- 💞️ I’m looking to collaborate on digital marketing, UX design projects
 - 📫 How to reach me: kinyanjuigloria@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love crotcheting and bike riding
